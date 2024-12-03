@@ -1,5 +1,5 @@
 # 💫 About Me:
-Apaixonado por tecnologia, cursando AdS, desenvolvimento focando em back-end :)
+always learning. :)
 
 
 ## 🌐 Socials:
